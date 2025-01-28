@@ -1,5 +1,3 @@
-# Tahiya-Nuzhath-Khan-57.github.io
-# SECP1513-16-TECHNOLOGY-AND-INFORMATION-SYSTEM
 # Tahiya Nuzhath Khan
 
 ![MyPic](https://github.com/user-attachments/assets/eb1096cf-d18e-4450-b077-b10709250433)
